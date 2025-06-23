@@ -17,7 +17,7 @@ Title: Frequently Asked Questions 🤔
 - Yes! Reach out to club staff on the night or via Facebook/Discord. Please give us at least one week notice to ensure it does not clash with any other events.
 
 **Will the cafe be open?**
-- Yes, Moka serves great tea and coffee. There is also some juices and soft drinks available.
+- Yes, Moka serves great tea and coffee during out events!
 
 **Can I play other games besides Magic?**
 - Yes, other card games and board games are welcome. Please consider the space available. Larger board games may need some more time to set up. If space might be an issue please reach out beforehand.
