@@ -4,7 +4,7 @@ title: Welcome to Carlow Games Club
 
 **What**: Magic the Gathering every week in Carlow Town. 
 
-**When**: Tuesday 19:00 - 22:00
+**When**: Tuesday 19:00 - 22:00 [[Event Calendar]]
 
 **Where**: [Moka Coffee Company](https://www.mokacoffeecompany.com/) - [Directions on Google Maps
 ](https://maps.app.goo.gl/qkxUvLNuhFS4A4No8)
