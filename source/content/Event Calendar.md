@@ -1,5 +1,5 @@
 ---
-Title: Event Calendar 📅
+Title: Event Calendar📅
 ---
 
 **Regular Games Night**
