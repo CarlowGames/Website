@@ -1,5 +1,5 @@
 ---
-Title: Community Creations
+Title: Community Creations 🎨
 ---
 
 # Cube
