@@ -1,11 +1,16 @@
 ---
-Title: Event Calendar
+Title: Event Calendar 📅
 ---
 
-**Regular Events**
+**Regular Games Night**
+- Every Tuesday 19:00 - 22:00
 
-Every Tuesday: Magic the Gathering - Commander
+# Special Events
 
-First Tuesday of the Month: Magic the Gathering - 60 Card Magic
+## 2025 - July
+- July TBD: Myster Booster 2 Draft
 
-Third Tuesday of the Month: Magic the Gathering - Limited
+## 2025 - June
+- June 10th: Battlebond Booster Draft
+- June 17th: Dario's Pauper Cube
+
