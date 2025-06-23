@@ -1,8 +1,8 @@
 ---
-title: Carlow Games Club 🎲
+title: Welcome to Carlow Games Club
 ---
 
-Welcome to Carlow Games Club. We play Magic the Gathering every week in Carlow Town. 
+**What**: Magic the Gathering every week in Carlow Town. 
 
 **When**: Tuesday 19:00 - 22:00
 
