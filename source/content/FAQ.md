@@ -1,5 +1,5 @@
 ---
-Title: Frequently Asked Questions🤔
+Title: "Frequently Asked Questions🤔"
 ---
 
 **What if I don't know how to play Magic?**
