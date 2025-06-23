@@ -1,5 +1,5 @@
 ---
-title: Welcome to Carlow Games Club
+title: Welcome to Carlow Games Club 👋
 ---
 
 **What**: Magic the Gathering every week in Carlow Town. 
