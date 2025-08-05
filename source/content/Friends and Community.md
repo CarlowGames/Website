@@ -15,6 +15,16 @@ Instagram: [evammmart](https://www.instagram.com/p/DM2WovRoo3u/?igsh=bGF3OXEyc3J
 
 # Cardmarket Sellers
 
+## Parmageddon
+
+[Parmageddon on Cardmarket](https://www.cardmarket.com/en/Magic/Users/Parmageddon)
+
+County Carlow based seller with a huge inventory of from oldschool classics to Standard. 
+
+Parmageddon visits the club regularly. Reach out on Cardmarket for a special discount to club members. 
+
+Buy from a local seller with over thousands of successful sales. Get all your cards in one order, at a great price. 
+
 # Venue
 
 ## Moka Coffee Company
