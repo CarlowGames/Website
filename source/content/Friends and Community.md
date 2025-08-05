@@ -6,12 +6,12 @@ Title: Friends and Community
 
 ## evammmart
 
+Instagram: [evammmart](https://www.instagram.com/p/DM2WovRoo3u/?igsh=bGF3OXEyc3JpZXY0)
+
 Local artist working in digital and traditional mediums.
 - Commissions
 - Trading Card Alters
 - Tabletop RPGs
-
-Instagram: [evammmart](https://www.instagram.com/p/DM2WovRoo3u/?igsh=bGF3OXEyc3JpZXY0)
 
 # Cardmarket Sellers
 
