@@ -1,7 +1,14 @@
 ---
-Title: Community Creations 🎨
+Title: Friends and Community
 ---
 
-# Cube
-- The Pauper Cube
-- The Unfair Vintage Cube
+# Artists
+
+## evammmart
+
+Local artist working in digital and traditional mediums.
+- Commissions
+- Trading Card Alters
+- Tabletop RPGs
+
+Instagram: evammmart
