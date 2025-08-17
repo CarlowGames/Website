@@ -1,5 +1,5 @@
 ---
-Title: Friends and Community
+Title: Friends and Local Business
 ---
 
 # Artists
