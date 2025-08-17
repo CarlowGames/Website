@@ -37,3 +37,16 @@ Coffee, wine and events, Moka is an instant classic in Carlow.
 Moka has a fantastic range of coffe and food during the day. In the evening it becomes an intimate wine bar. A great place to catch up after dinner and unwind. 
 
 They have a great space for clubs and events including our regular Tuesday game nights. Reach out on their site, or chat to the staff to learn more.
+
+# Wargames
+
+[Eastern Fringe Gaming](https://easternfringegaming.ie/)
+
+A collection of wargamers. Meet-ups are organized across Leinster.
+
+[Website](https://easternfringegaming.ie/)
+[Instagram](https://www.instagram.com/easternfringegamingclub?igsh=MTlvbTRqdzhhczgxbQ==)
+[Facebook](https://www.facebook.com/profile.php?id=61573128539223)
+[Membership Sign Up](https://docs.google.com/forms/d/e/1FAIpQLSfkl90ZhXaGYDrebCuxytmI37hK5zKc3aiDaAlRIrPgFGJkGg/viewform)
+
+
