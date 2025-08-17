@@ -14,7 +14,7 @@ title: Welcome to Carlow Games Club 👋
 **Socials**:
   - [Discord](https://discord.gg/meCmWbnZMh)
   - [Facebook](https://www.facebook.com/groups/73607047264866)
-  - Email: mtgtnm@gmail.com
+  - mtgtnm@gmail.com
 
 **I Have Questions**: See our [[FAQ]]
  
