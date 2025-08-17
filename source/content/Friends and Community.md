@@ -7,6 +7,7 @@ Title: Friends and Community
 ## evammmart
 
 Instagram: [evammmart](https://www.instagram.com/p/DM2WovRoo3u/?igsh=bGF3OXEyc3JpZXY0)
+Cardmarket: [beanoodles](https://www.cardmarket.com/en/Magic/Users/beanoodles)
 
 Local artist working in digital and traditional mediums.
 - Commissions
