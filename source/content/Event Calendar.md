@@ -10,7 +10,10 @@ Title: "Event Calendar 📅"
 # Special Events
 
 ## 2025 - August
-- August 14th: Vintage Lands Cube
+- August 19th: Crimson Vow Draft
+  - Price: Regular €5 entry
+  - Time: 19:15 - 22:00
+- August 19th: Vintage Lands Cube
   - Price: Regular €5 entry
   - Time: 19:15 - 22:00
 - August 5th: Edge of Eternities Draft
